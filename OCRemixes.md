@@ -32,7 +32,7 @@ Went through tracks OCR00201-~~OCR00220~~-OCR00218. this batch flashbanged me wi
 
 had a pretty good time with these
 
---
+---
 
 day 9(ish) of posting some chill ocremix.org tracks every day until I forget. 
 
@@ -46,7 +46,7 @@ Was busy yesterday, back to  it today. Went through tracks OCR00181-OCR00200. hi
 
 time to tap out, just got sonically oblitearted by [OCR00199](https://ocremix.org/remix/OCR00199), an INCREDIBLY questional remix of Celes's theme. 200 down, a little over four thousand to go
 
---
+---
 
 day 8 of posting some chill ocremix.org tracks every day until I forget. 
 
@@ -56,7 +56,7 @@ Went through tracks OCR00161-OCR00180. this batch was a fuckin' struggle, fam. w
 
 had to tap out after (less than) 20 remixes. this was a marriage-ending rough patch in the catalogue, dang
 
--- 
+---
 
 day 7 of posting some chill ocremix.org tracks every day until I forget
 
@@ -78,7 +78,7 @@ Went through tracks ~~OCR00131~~OCR00132-OCR00160. we have officially entered th
 
 there was so much mkvaffe here; including tracks i didn't link. bro, calm down
 
---
+---
 
 
 day 6 of posting some chill ocremix.org tracks every day until I forget
@@ -97,7 +97,7 @@ Went through tracks OCR00111-OCR00130. hit the first Earthbound track still on t
 
 lotta gaps here but some decent stuff in what let's left!
 
---
+---
 
 
 day 5 of posting some chill ocremix.org tracks every day until I forget
@@ -114,7 +114,7 @@ Went through tracks OCR00081-OCR00110. surprised it took this long to hit a Cast
 
 there was literally only one track between 102 and 109 that hadn't been removed; lotta gaps here, and slim pickings in what's left
 
--- 
+--- 
 
 day 4 of posting some chill ocremix.org tracks every day until I forget
 
@@ -136,7 +136,7 @@ Went through tracks OCR00061-OCR00080. hit a jam early on and rode that high thr
 
 this was a good run, had to prune out some songs I enjoyed so I didn't dump 15 links
 
---
+---
 
 day 3 of posting some chill ocremix.org tracks every day until I forget
 
@@ -148,7 +148,7 @@ Went through tracks OCR00031-OCR00060. Or more like OCR00034-OCR00060 since 31-3
 
 that's it! this stretch sucked!
 
---
+---
 
 day 2 of posting some chill ocremix.org tracks every day until I forget
 
@@ -160,7 +160,7 @@ Went through tracks OCR00011-OCR00030. Lotta gaps in this range: [they've remove
 
 [OCR00026: The Legend of Zelda "Hyrulian"](https://ocremix.org/remix/OCR00026) - Alright djpretzel gonna give you one, but only because I'm a sucker for a filthy remix of the original Zelda theme.
 
---
+---
 
 day 1 of posting some chill ocremix.org tracks every day until I forget
 
