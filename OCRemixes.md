@@ -1,3 +1,19 @@
+day 11 of posting some chill ocremix.org tracks every day until I forget. [previous days](https://github.com/Beelzebulbasar/ocremix-deep-dive/blob/main/OCRemixes.md)
+
+Went through tracks OCR00221-OCR00240. doing a lot of asking: why? why did you remix this track? what made you sit down and decide that some dinky junk track from the Mario RPG soundtrack or whatever needed a remix? help me understand you
+
+[OCR00222: Batman "Music of Funk"](https://ocremix.org/remix/OCR00222) - batman... dance? sure, takes a second to get moving but pretty fun
+
+[OCR00229: Shadowgate "Dancefloor"](https://ocremix.org/remix/OCR00229) - might be a dance night. this **is** shadowgate but it's also mega man 2
+
+[OCR00231: Doom "Doomed"](https://ocremix.org/remix/OCR00231) - textbook chill. lofi beats to relax / think about shotguns to. the longer this went on the more i like it
+
+[OCR00240: Sonic the Hedgehog 3 "IceCapped"](https://ocremix.org/remix/OCR00240) - closing out edm night with some sanic
+
+no all-timers tonight but i've had worse nights doing this
+
+---
+
 day 10 of posting some chill ocremix.org tracks every day until I forget. 
 
 Went through tracks OCR00201-~~OCR00220~~-OCR00218. this batch flashbanged me with a djpretzel Lunar remix with lyrics. it will not be linked. otherwise had a pretty good time, very few "smell my finger" tracks banished to the DMs
