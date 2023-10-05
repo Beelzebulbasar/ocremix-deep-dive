@@ -1,4 +1,4 @@
-day 11 of posting some chill ocremix.org tracks every day until I forget. [previous days](https://github.com/Beelzebulbasar/ocremix-deep-dive/blob/main/OCRemixes.md)
+day 11 of posting some chill ocremix.org tracks every day until I forget.
 
 Went through tracks OCR00221-OCR00240. doing a lot of asking: why? why did you remix this track? what made you sit down and decide that some dinky junk track from the Mario RPG soundtrack or whatever needed a remix? help me understand you
 
