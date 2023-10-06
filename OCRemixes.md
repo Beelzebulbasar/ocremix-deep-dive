@@ -1,3 +1,17 @@
+day 12 of posting some chill ocremix.org tracks every day until I forget.
+
+Went through tracks OCR00241-OCR00260. One year into the site's lifespan, and MkVaff has absolutely taken djpretzel's place as "dude who is submitting entirely too much shit and most of it kinda mid". djpretzel was bootstrapping the site so I _get it_, and most of MkVaff's stuff isn't _bad_ (I've posted a few of his tracks), but at this point I never get hyped up when I see "by MkVaff".
+
+[OCR00249: Blaster Master "Through the Eyes of Tragedy"](https://ocremix.org/remix/OCR00249) - slap baaaaaaasss! guitars!
+
+[OCR00254: The Guardian Legend "8-bit Rox"](https://ocremix.org/remix/OCR00254) - prozax pulling out some fun guitars in this batch. not super familiar with this game but fun is fun
+
+[OCR00260: Sonic 3D Blast "Dark Puppetry"](https://ocremix.org/remix/OCR00260) - was ready to call this batch a dud and then i hit this chill sonic 3d track. drops the ball a bit in the middle but not bad
+
+lotta gaps here and not a lot really calling to me. oh well!
+
+---
+
 day 11 of posting some chill ocremix.org tracks every day until I forget.
 
 Went through tracks OCR00221-OCR00240. doing a lot of asking: why? why did you remix this track? what made you sit down and decide that some dinky junk track from the Mario RPG soundtrack or whatever needed a remix? help me understand you
