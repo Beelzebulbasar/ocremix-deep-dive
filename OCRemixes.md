@@ -186,3 +186,16 @@ Went through tracks OCR00241-OCR00260. One year into the site's lifespan, and Mk
 
 lotta gaps here and not a lot really calling to me. oh well!
 
+---
+
+somehow ocremix posting returned: day 13(ish) of posting some chill ocremix.org tracks every day until I forget. 
+
+Went through tracks OCR00261-OCR00280. had to take a few days off for work crunch. first track in this batch was a remix of Magus's theme, except it was just vaguely Magus-themed ambient noise. how the hell do you take a song that had the sickest drop in the year of our lord 1995 and make it all flirt and no fuck?
+
+[OCR00264: Final Fantasy VIII "Eyes on Me (Not Faye Wong)"](https://ocremix.org/remix/OCR00264) - IMMEDIATELY panicked the instant i realized i was about to click an eyes on me cover, but you know what? it kinda works. it ain't perfect by a long shot, but it kinda works
+
+[OCR00268: Super Mario Bros. 2 "Insomnic" ](https://ocremix.org/remix/OCR00268) - i'm not going to download this track. this remix is not going into my library. but sometimes i appreciate landing on a mix that's only really interested in finding a fresh way to transport you back to another time, a time when jumping around in Mario 2 was all you could have ever wanted from this life
+
+[OCR00269: Chrono Trigger "Winds of Time"](https://ocremix.org/remix/OCR00269) - who cares if a remix is really close to the original when the original is a really fuckin' incredible song?
+
+[OCR00270: Metroid "Metaltroid"](https://ocremix.org/remix/OCR00270) - first half? ehh, whatever. second half? yes. correct.
