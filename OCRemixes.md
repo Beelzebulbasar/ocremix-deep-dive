@@ -199,3 +199,19 @@ Went through tracks OCR00261-OCR00280. had to take a few days off for work crunc
 [OCR00269: Chrono Trigger "Winds of Time"](https://ocremix.org/remix/OCR00269) - who cares if a remix is really close to the original when the original is a really fuckin' incredible song?
 
 [OCR00270: Metroid "Metaltroid"](https://ocremix.org/remix/OCR00270) - first half? ehh, whatever. second half? yes. correct.
+
+---
+
+day 14 of posting some chill ocremix.org tracks every day until I forget.
+
+Went through tracks ~~OCR00281~~ OCR00282-OCR00300. ocremix comments continue to perplex me, like when they [went apeshit for this garbage](https://ocremix.org/remix/OCR00291) or how [they universally panned the intro here](https://ocremix.org/remix/OCR00282)
+
+[OCR00283: Half-Life "Time to Choose"](https://ocremix.org/remix/OCR00283) - felt kinda whatever about this until it goes a little crazy in the third and final minute
+
+[OCR00295: Mega Man 3 "Needles"](https://ocremix.org/remix/OCR00295) - needles! finally! mostly enjoy the intro here; it's at least 30% of why i linked the music of my groin on day 10. sometimes a song is dumb and that rules + that sax is HOT
+
+[OCR00296: Chrono Cross "Radical Punks"](https://ocremix.org/remix/OCR00296) - radical dreamers but shredding? sure, let's go, this rules, longstanding track in the library
+
+[OCR00300: Lufia II: Rise of the Sinistrals "Mystery in Red"](https://ocremix.org/remix/OCR00300) - rare djpretzel W?
+
+295-296 is a power play, and then the next three tracks are gone
