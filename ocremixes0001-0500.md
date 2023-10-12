@@ -215,3 +215,17 @@ Went through tracks ~~OCR00281~~ OCR00282-OCR00300. ocremix comments continue to
 [OCR00300: Lufia II: Rise of the Sinistrals "Mystery in Red"](https://ocremix.org/remix/OCR00300) - rare djpretzel W?
 
 295-296 is a power play, and then the next three tracks are gone
+
+---
+
+day 15 of posting some chill ocremix.org tracks every day until I forget.
+
+Went through tracks OCR00301-OCR00320. deep diving this catalogue can hit you with some real weird feelings. like there's a track you love turned into a remix that makes you feel less than nothing, or a track you couldn't imagine ever caring about somehow transformed into the hardest shit you're gonna hear all week. speaking of:
+
+[OCR00301: Q*bert "A!Bol Hardcore"](https://ocremix.org/remix/OCR00301) - this q*bert mix goes hard? what?????? don't let the intro scare you off, the guitars come in and then it goes crazy
+
+[OCR00311: Final Fantasy VII "Red XIII Redux"](https://ocremix.org/remix/OCR00311) - valley of the fallen star is already a cool track, all amievil needed to do was not fuck up, and he didn't fuck up. lil' short though
+
+[OCR00313: Chrono Trigger "Team Gato"](https://ocremix.org/remix/OCR00313) - this is so fucking stupid, i love it. legitimately made me laugh. it kinda grew on me the longer it went on??? but then it loses it a bit there at the end, oh well!
+
+there were so many solid tracks in this batch that didn't quite cross the ineffable post link threshold. also at the back of my mind: how long can I keep doing this before someone decides to be Annoyed
