@@ -229,3 +229,17 @@ Went through tracks OCR00301-OCR00320. deep diving this catalogue can hit you wi
 [OCR00313: Chrono Trigger "Team Gato"](https://ocremix.org/remix/OCR00313) - this is so fucking stupid, i love it. legitimately made me laugh. it kinda grew on me the longer it went on??? but then it loses it a bit there at the end, oh well!
 
 there were so many solid tracks in this batch that didn't quite cross the ineffable post link threshold. also at the back of my mind: how long can I keep doing this before someone decides to be Annoyed
+
+---
+
+day 16 of posting some chill ocremix.org tracks every day until I forget.
+
+Went through tracks ~~OCR00321~~ OCR00322-OCR00340.
+
+[OCR00327: Radical Dreamers: Nusumenai Houseki "No Promises Punk"](https://ocremix.org/remix/OCR00327) - three radical dreamers tracks in a row and the only one that works is jaxx blowing it the fuck out. long time library entry here (update: oh my god there's another one after this, apparently they were doing a Thing (update update: fuck, fifth in a row (update update update: AAAAGGGHHH)))
+
+[OCR00336: Secret of Mana "Fear of the Flava"](https://ocremix.org/remix/OCR00336) - not an all-timer but i've always been a sucker for the secret of mana material here, so the samples get me where i live
+
+[OCR00338: Ninja Gaiden "Devil's Mask"](https://ocremix.org/remix/OCR00338) - s'chill. mostly linking it to round the night out to an even three
+
+this is too much radical dreamers! nine in a row! i can't believe i was happy to see a remix of princess tomato in the salad kingdom
