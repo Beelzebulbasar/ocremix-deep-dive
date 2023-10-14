@@ -243,3 +243,17 @@ Went through tracks ~~OCR00321~~ OCR00322-OCR00340.
 [OCR00338: Ninja Gaiden "Devil's Mask"](https://ocremix.org/remix/OCR00338) - s'chill. mostly linking it to round the night out to an even three
 
 this is too much radical dreamers! nine in a row! i can't believe i was happy to see a remix of princess tomato in the salad kingdom
+
+---
+
+day 17 of posting some chill ocremix.org tracks every day until I forget. 
+
+Went through tracks OCR00341-OCR00360. heartbreaking: remixer names their mega man x remix something sick like Sigmatism; the track sucks
+
+[OCR00344: NiGHTS into dreams... "Good NiGHT"](https://ocremix.org/remix/OCR00344) - suuuuuuper mellow. i promised chill tracks and by god i am going to send you some chill tracks
+
+each track has a little write-up from the staff member who approved adding the song to the ocremix library. a castlevania 2 track approved by djpretzel included this line:
+
+> A perfect collaboration, as each ReMixer's strengths are optimized to the utmost to bring friggin' fantastical ear candy straight to your noggin'.
+
+i don't miss the 2001 era internet. anyway, this batch sucked!
